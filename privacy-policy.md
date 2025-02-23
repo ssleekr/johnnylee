@@ -24,7 +24,7 @@ The 경조사비 장부 App is designed to comply with the GDPR, CCPA, and other
 We may update this Privacy Policy from time to time to reflect changes in our practices or for other operational, legal, or regulatory reasons. We encourage you to periodically review this Privacy Policy for the latest information on our privacy practices.
 8. Contact Us
 If you have any questions or concerns regarding this Privacy Policy or your privacy while using the 경조사비 장부 App, please contact us at:
-ssleekr@gmail.com
+ssleekr7@gmail.com
 
 9. Conclusion
 Your privacy is important to us, and we are committed to ensuring that your personal data remains private and secure. By using the 경조사비 장부 App, you acknowledge that you understand and agree to the terms of this Privacy Policy.
